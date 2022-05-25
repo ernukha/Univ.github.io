@@ -1,2 +1,2 @@
-# Univ.github.io
+# Didik
 https://ernukha.github.io/Univ.github.io/
